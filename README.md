@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate with death
 - 📫 How to reach me? search meinhoonsamay on instagram
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I donn't feel anything
+- ⚡ Fun fact: I don't feel anything
 
 <!---
 coderraven21/coderraven21 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
