@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @coderraven21
 - 👀 I’m interested in writing things
 - 🌱 I’m currently learning many things
-- 💞️ I’m looking to collaborate on death
+- 💞️ I’m looking to collaborate with death
 - 📫 How to reach me? search meinhoonsamay on instagram
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I donn't feel anything
